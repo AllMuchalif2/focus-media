@@ -8,8 +8,8 @@
 
 ## Sumber Video
 
-- [Lofi Chill Cat Cartoon Cozy](https://pixabay.com/videos/lofi-chill-cat-cartoon-cozy-246535/)
-- [Lofi Chill Nature Cat Sunrise](https://pixabay.com/videos/lofi-chill-nature-cat-sunrise-270507/)
+- forest Video by <a href="https://pixabay.com/users/whitehatdesigner-25779762/?utm_source=link-attribution&utm_medium=referral&utm_campaign=video&utm_content=312690">WhiteHatDesigner</a> from <a href="https://pixabay.com//?utm_source=link-attribution&utm_medium=referral&utm_campaign=video&utm_content=312690">Pixabay</a>
+- train Video by <a href="https://pixabay.com/users/turning_pages-50915814/?utm_source=link-attribution&utm_medium=referral&utm_campaign=video&utm_content=363703">Turning Pages</a> from <a href="https://pixabay.com//?utm_source=link-attribution&utm_medium=referral&utm_campaign=video&utm_content=363703">Pixabay</a>
 
 ## Sumber Thumbnail
 
